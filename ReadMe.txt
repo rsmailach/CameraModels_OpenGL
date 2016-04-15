@@ -1,5 +1,4 @@
 Rachel Mailach
-114 9242
 
 
 CAMERA MODELS - 4GC3 - Assignment 2 v2
